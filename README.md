@@ -1,1 +1,1 @@
-Second account of [@KornLS](github.com/kornls)
+Second account of [@KornLS](https://github.com/kornls)
